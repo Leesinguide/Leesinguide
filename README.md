@@ -1,1 +1,1 @@
-It is a guide for Lee Sin *league of legends*. I will explain/describe optimal play/build/technique.
+It is a guide for Lee Sin. I will explain/describe optimal play/build/technique.
